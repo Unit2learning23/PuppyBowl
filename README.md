@@ -1,4 +1,4 @@
 # PuppyBowl
 PuppyBowl
-Puppy Bowl, the event has grown immensely in both scope and viewership.
+PUPPY BOWL, THE EVENT HAS GROWN IMMENSELY IN BOTH SCOPE AND VIEWERSHIP.
 PUPPY BOWL RETURNS FOR AN EPIC SHOWDOWN BETWEEN TEAMS
